@@ -1,8 +1,9 @@
 - 👋 Hi, I’m @JJFTWGaming
+- 🙇🏻‍♂️ I'm 16 years old
 - 👀 I’m interested in alot of things
 - 🌱 I’m currently learning alot of things
 - 💞️ I’m looking to collaborate on nothing atm
-- 📫 How to reach me via email
+- 📫 Reach me via email
 
 <!---
 JJFTWGaming/JJFTWGaming is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
