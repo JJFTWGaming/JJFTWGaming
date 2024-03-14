@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @JJFTWGaming
-- 🙇🏻‍♂️ I'm 16 years old
+- 🙇🏻‍♂️ I'm 17 years old
 - 👀 I’m interested in alot of things
 - 🌱 I’m currently learning alot of things
 - 💞️ I’m looking to collaborate on nothing atm
